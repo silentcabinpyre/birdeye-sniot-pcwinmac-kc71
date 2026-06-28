@@ -1,4 +1,4 @@
-# 
+# Personalizado birdeye sniper bot modelos para Mac OS | Novo birdeye sniper bot modelos para PC Windows. Com acesso rápido ao mempool e otimização de preço de gás — otimizado para máximo desempeño en cada plataforma.
 
 
 
